@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **patipat.chewprecha@gmail.com**
 
-- 📄 Know about my experiences [https://patipat-mon.notion.site/Patipat-Chewprecha-b291a19030e2469ea6dfd7df078fc56f](https://patipat-mon.notion.site/Patipat-Chewprecha-b291a19030e2469ea6dfd7df078fc56f)
+- 📄 Know about my experiences [My Notion](https://patipat-mon.notion.site/Patipat-Chewprecha-b291a19030e2469ea6dfd7df078fc56f)
 
 - ⚡ Fun fact **Free time looking orange cat.**
 
